@@ -3,7 +3,7 @@
 
 - 🌱 I’m currently learning **C , C++ , JAVA, PYTHON**
 
-- 📫 How to reach me **Avinashkanujia2219@gmail.com**
+- 📫 How to reach me **aryanlokesh0007@gmail.com@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
